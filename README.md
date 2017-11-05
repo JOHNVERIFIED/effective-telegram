@@ -1,0 +1,2 @@
+# effective-telegram
+TRIKKY ENTERTAINMENT
